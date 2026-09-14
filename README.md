@@ -1,3 +1,2 @@
 # noraY
-![Uploading RYB.png…]()
 
